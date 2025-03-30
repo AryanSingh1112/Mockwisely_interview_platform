@@ -1,1 +1,0 @@
-# Mockwisely_interview_platform
